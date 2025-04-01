@@ -1,0 +1,1 @@
+# bali-kids-camp
